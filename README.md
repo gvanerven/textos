@@ -1,3 +1,3 @@
 # textos
 
-Produção literária.
+Produção literária e outros.
